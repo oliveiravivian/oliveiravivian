@@ -1,0 +1,3 @@
+- Oi, eu sou a Vivian
+- Eu gosto de ler, escrever e ouvir música então a programação é só um hobbie
+- Como entrar em contato? Não entre!
